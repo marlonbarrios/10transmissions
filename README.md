@@ -192,4 +192,3 @@ And we, the children of the last republic, are planting stories in the ruins.
 
 **End of transmission.**
 
-Would you like me to export this as a .md file or share a formatted PDF version too?
