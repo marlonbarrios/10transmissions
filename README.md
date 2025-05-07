@@ -1,6 +1,5 @@
-Here’s the complete Markdown code for the story Children of the Last Republic. You can copy and paste this into any Markdown editor or .md file:
 
-# **Children of the Last Republic**
+# **10 Transnmissions: Children of the Last Republic**
 
 ---
 
