@@ -1,5 +1,5 @@
 
-# **10 Transnmissions: Children of the Last Republic**
+# **10 Transmissions: Children of the Last Republic**
 
 ---
 
